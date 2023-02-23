@@ -1,5 +1,3 @@
-### Hi there 👋
-
 
 ### [**Eunbi Kim**](https://subsequent-napkin-f74.notion.site/Make-everyone-s-life-more-fun-via-AI-d6a1722a5aee470a95b82cc84c86c998)
 
